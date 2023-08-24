@@ -1,4 +1,3 @@
-# Chapter 3: Transforming the Core Business
 
 ## Understanding the Importance of Transforming the Core Business
 

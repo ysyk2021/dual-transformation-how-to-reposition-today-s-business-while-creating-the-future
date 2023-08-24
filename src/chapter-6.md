@@ -1,5 +1,3 @@
-Chapter 5: Aligning Leadership and Culture
-==========================================
 
 In this chapter, we'll explore the importance of aligning leadership and culture to support dual transformation. Dual transformation involves both optimizing the core business and exploring new growth opportunities, and this requires a mindset of continuous transformation. To achieve this mindset, the right leadership team and culture are crucial.
 

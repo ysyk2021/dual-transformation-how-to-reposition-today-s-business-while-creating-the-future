@@ -1,5 +1,3 @@
-Chapter 4: Creating the New Business
-====================================
 
 In this chapter, we will explore the crucial role of creating new business models and ventures for future growth and success. We'll discuss techniques for managing risk while innovating, developing a portfolio of new business models, and building a culture of experimentation and agility.
 

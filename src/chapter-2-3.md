@@ -1,5 +1,3 @@
-Developing a Mindset of Continuous Transformation
-============================================================================================================
 
 In this chapter, we'll explore how developing a mindset of continuous transformation is essential for embracing dual transformation. We'll discuss why traditional approaches to change are no longer sufficient and provide strategies for developing a culture that supports continuous transformation.
 

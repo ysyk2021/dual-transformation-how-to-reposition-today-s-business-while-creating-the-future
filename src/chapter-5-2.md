@@ -1,5 +1,3 @@
-Techniques for Creating the New Business While Managing Risk
-==================================================================================================
 
 In this chapter, we will explore techniques for creating the new business while managing risk as part of the dual transformation process. We'll discuss the importance of risk management, techniques for identifying and mitigating risks, and strategies for balancing innovation with risk.
 

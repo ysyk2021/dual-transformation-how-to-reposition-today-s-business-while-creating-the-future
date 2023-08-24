@@ -1,5 +1,3 @@
-Building a Culture that Embraces Change and Innovation
-==================================================================================================
 
 In this chapter, we'll explore the importance of aligning leadership and culture to support transformation efforts. We'll discuss how to build a culture that embraces change and innovation and provide strategies for aligning leadership with the company's vision for the future.
 

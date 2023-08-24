@@ -1,5 +1,3 @@
-The Importance of Building Capabilities for Dual Transformation
-=========================================================================================================================
 
 In this chapter, we will explore the importance of building capabilities for dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss how building capabilities can enable companies to adapt to changing market conditions and emerging technologies, positioning themselves for sustained growth and success over the long term.
 

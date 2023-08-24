@@ -1,5 +1,3 @@
-Techniques for Developing a Leadership Team that Supports Dual Transformation
-=========================================================================================================================
 
 In this chapter, we will explore techniques for developing a leadership team that supports dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss the importance of aligning leadership around a shared vision, techniques for identifying and developing effective leaders, and strategies for creating a culture of innovation and agility.
 

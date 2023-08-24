@@ -1,5 +1,3 @@
-Chapter 7: Measuring the Impact of Dual Transformation
-======================================================
 
 In this chapter, we'll explore the importance of measuring the impact of dual transformation. Dual transformation involves both optimizing the core business and exploring new growth opportunities, and tracking progress is crucial for ensuring that you're achieving your transformation goals.
 

@@ -1,5 +1,3 @@
-Addressing Common Obstacles and Challenges in Measuring Impact
-======================================================================================================================
 
 In this chapter, we'll focus on addressing common obstacles and challenges that organizations may face when measuring the impact of dual transformation. Dual transformation involves both optimizing the core business and exploring new growth opportunities, and tracking progress is crucial for ensuring that you're achieving your transformation goals.
 

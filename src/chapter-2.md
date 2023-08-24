@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Need for Dual Transformation
-=========================================================
 
 Overview of Dual Transformation Theory
 --------------------------------------

@@ -1,5 +1,3 @@
-Building a Culture of Continuous Learning and Development
-===================================================================================================================
 
 In this chapter, we'll explore the importance of building capabilities for dual transformation, specifically by building a culture of continuous learning and development. Dual transformation requires organizations to constantly adapt and evolve, and developing the necessary capabilities is crucial for success.
 

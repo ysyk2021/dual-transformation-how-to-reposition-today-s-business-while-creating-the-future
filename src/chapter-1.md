@@ -1,5 +1,3 @@
-Introduction
-============
 
 In today's fast-paced business world, companies must constantly adapt to remain relevant and competitive. The traditional approach of focusing solely on optimizing the existing business is no longer sufficient. Instead, companies must pursue dual transformation, which involves transforming the core business while simultaneously creating new growth opportunities.
 

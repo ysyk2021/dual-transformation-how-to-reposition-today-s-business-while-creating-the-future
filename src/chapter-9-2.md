@@ -1,5 +1,3 @@
-Final Thoughts on Dual Transformation
-=================================================
 
 In Dual Transformation, we have explored the need for companies to transform their core business while simultaneously creating new growth opportunities. This approach, known as dual transformation, is critical for remaining competitive in an ever-changing market.
 

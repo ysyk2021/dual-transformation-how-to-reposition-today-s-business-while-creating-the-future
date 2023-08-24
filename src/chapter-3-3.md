@@ -1,5 +1,3 @@
-Addressing Common Challenges in Mapping Your Transformation Journey
-===================================================================================================================
 
 Mapping your transformation journey is a critical step in successfully executing dual transformation. However, there are common challenges that businesses may face when trying to build a clear understanding of their unique transformation path. In this chapter, we'll explore how to address these challenges.
 

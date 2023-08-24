@@ -1,5 +1,3 @@
-Developing Effective Communication Channels to Drive Transformation
-===============================================================================================================
 
 In this chapter, we'll explore the importance of effective communication channels in driving transformation efforts. We'll discuss how companies can align leadership and culture to support transformation through effective communication and provide strategies for developing these channels.
 

@@ -1,5 +1,3 @@
-Overview of Dual Transformation Theory
-=================================================================================================
 
 In this chapter, we'll explore the concept of dual transformation and why it's essential for businesses to embrace this approach. We'll provide an overview of dual transformation theory and discuss how it can help companies stay competitive in today's fast-changing business landscape.
 

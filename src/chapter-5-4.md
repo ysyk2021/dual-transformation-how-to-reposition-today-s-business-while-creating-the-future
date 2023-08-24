@@ -1,5 +1,3 @@
-Building a Culture of Experimentation and Agility
-=======================================================================================
 
 In this chapter, we will explore the process of creating new businesses - the process of developing new growth opportunities and business models to adapt to changing market conditions and emerging technologies. We'll discuss the importance of building a culture of experimentation and agility, techniques for identifying new growth opportunities, and strategies for implementing change.
 

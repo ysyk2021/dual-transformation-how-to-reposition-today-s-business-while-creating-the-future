@@ -1,5 +1,3 @@
-Building a Clear Understanding of Your Unique Transformation Path
-=================================================================================================================
 
 Dual transformation requires businesses to simultaneously reposition their current business while also creating the future. In this chapter, we'll explore how to build a clear understanding of your unique transformation path.
 

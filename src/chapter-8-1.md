@@ -1,5 +1,3 @@
-The Importance of Measuring the Impact of Dual Transformation
-=====================================================================================================================
 
 In this chapter, we will explore the importance of measuring the impact of dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss the benefits of effective measurement, common obstacles and challenges, and strategies for building a culture of data-driven decision-making.
 

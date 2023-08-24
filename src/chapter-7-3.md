@@ -1,5 +1,3 @@
-Addressing Common Obstacles and Challenges in Building Capabilities for Dual Transformation
-=====================================================================================================================================================
 
 In this chapter, we will explore common obstacles and challenges that companies may face when building capabilities for dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss strategies for overcoming these obstacles and building the necessary skills and capabilities to drive sustained growth and success over the long term.
 

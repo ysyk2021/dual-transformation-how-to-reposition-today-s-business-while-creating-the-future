@@ -1,5 +1,3 @@
-Chapter 6: Building Capabilities for Dual Transformation
-========================================================
 
 In this chapter, we'll explore the importance of building capabilities for dual transformation. Dual transformation involves both optimizing the core business and exploring new growth opportunities, and developing the necessary skills and capabilities is crucial for success.
 

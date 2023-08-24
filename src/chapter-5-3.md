@@ -1,5 +1,3 @@
-Developing a Portfolio of New Business Models and Ventures
-================================================================================================
 
 In this chapter, we will explore the importance of developing a portfolio of new business models and ventures as part of the dual transformation process. We'll discuss the benefits of diversifying innovation efforts, techniques for identifying and testing new ideas, and strategies for scaling successful new business models.
 

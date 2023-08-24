@@ -1,5 +1,3 @@
-Techniques for Developing Necessary Skills and Capabilities
-=====================================================================================================================
 
 In this chapter, we will explore techniques for building capabilities for dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss the importance of developing necessary skills and capabilities, techniques for identifying skill gaps, and strategies for building new capabilities.
 

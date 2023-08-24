@@ -1,5 +1,3 @@
-The Importance of Dual Transformation in Modern Business
-======================================================================
 
 In today's fast-changing business landscape, companies must embrace dual transformation to stay competitive. Single transformation, which involves repositioning the core business to improve efficiency and competitiveness, is no longer sufficient to keep up with changing customer needs and market conditions.
 

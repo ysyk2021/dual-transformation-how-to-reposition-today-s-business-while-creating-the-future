@@ -1,5 +1,3 @@
-Recognizing the Importance of Aligning Leadership and Culture to Support Dual Transformation
-========================================================================================================================================
 
 In this chapter, we will explore the importance of aligning leadership and culture to support dual transformation - the process of simultaneously repositioning a company's core business while creating new growth opportunities. We'll discuss the role of leadership in driving cultural change, techniques for aligning leadership and culture, and strategies for sustaining cultural alignment over time.
 
