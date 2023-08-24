@@ -1,5 +1,4 @@
 
-
 In today's fast-changing business landscape, organizations must be willing to adapt and evolve to stay competitive. The strategy of dual transformation involves both optimizing the core business and exploring new growth opportunities. This approach can help companies reposition their business while creating the future.
 
 In this book, we will explore how dual transformation can help organizations achieve long-term success. We will cover a range of topics, including mapping your transformation journey, building capabilities for dual transformation, identifying common challenges and obstacles, measuring the impact of dual transformation, and more.

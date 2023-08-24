@@ -1,5 +1,4 @@
 
-
 Dual transformation is a powerful approach to repositioning today's business while creating the future. In this book, we've explored the key principles and strategies for successfully executing dual transformation. Let's recap some of the key takeaways from our discussion.
 
 Recap of Key Takeaways
