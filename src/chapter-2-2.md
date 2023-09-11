@@ -1,5 +1,4 @@
-Chapter: Identifying the Challenges of Single Transformation
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the challenges that arise from pursuing single transformation in businesses and the importance of embracing dual transformation to navigate the complexities of today's rapidly changing landscape. We delve into the limitations and risks associated with solely focusing on repositioning the current business without concurrently creating the future. By understanding the challenges of single transformation, readers will gain valuable insights into the need for adopting a dual transformation approach.
 
